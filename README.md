@@ -1,1 +1,0 @@
-# rudhra-md
